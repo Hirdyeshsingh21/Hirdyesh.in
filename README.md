@@ -1,2 +1,0 @@
-# Hirdyesh.in
-Inst about 
